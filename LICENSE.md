@@ -1,4 +1,4 @@
-#  
+#  best Scripts for spin a soccer card offers the most advanced spin a soccer card Script, with aimbot and auto-upgrade. Perfect for dominating any
 
 
 
